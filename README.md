@@ -19,5 +19,5 @@
 > 
 
 
-![Фото](https://photos.app.goo.gl/b27WgY7e4dXCL88b8)
+![Фото](https://drive.google.com/file/d/1hZF6kXbS5Bxt_mUMV58hbzGl1R1Y3rWN/view?usp=sharing)
 
